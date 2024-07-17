@@ -6,7 +6,7 @@
 
 💞️ Estou procurando colaborar em projetos de código aberto relacionados ao desenvolvimento web ou desenvolvimento de aplicativos móveis.
 
-📫 Como me encontrar: [Seu Endereço de Email] ou [Seu Perfil no LinkedIn]
+📫 Como me encontrar: carlosefaraujo@outlook.com ou [Seu Perfil no LinkedIn]
 
 😄 Pronomes: Ele/Dele
 
